@@ -1,4 +1,5 @@
-### Hi there 👋🤭
+### ![미스터빈미스터빈안녕안뇽안녕하세요하이인사GIF (2)](https://user-images.githubusercontent.com/84840687/187018505-f9e22eb8-5a6a-497b-bc49-2aaeb2c06cf1.gif)
+
 
 <!--
 **SuMin-Kwon/SuMin-Kwon** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
